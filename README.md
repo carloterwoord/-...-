@@ -19,3 +19,4 @@ Hardware:\
 1x S-39\
 1x 25x25cm metal tray black\
 1x Electrical tape
+1kg white (bird) sand
